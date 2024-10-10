@@ -1,0 +1,5 @@
+Dalam perjalanan pulang, Si Kancil bertemu dengan seekor Kura-kura yang berjalan lambat. Si Kancil menghampiri Kura-kura dan tersenyum. "Hai, Kura-kura! Apa kau mau bergabung dalam petualangan ini?" tanyanya. Kura-kura, yang memiliki sifat sabar dan bijaksana, menjawab, "Tentu! Aku suka berpetualang, meskipun aku berjalan lambat."
+
+Mereka pun mulai berjalan bersama, saling bertukar cerita tentang pengalaman masing-masing. Si Kancil menunjukkan kepada Kura-kura cara menghindari jebakan seorang petani dan menipu para buaya. Sementara itu, Kura-kura mengajarkan Si Kancil tentang pentingnya kesabaran dalam menghadapi setiap tantangan. Mereka berdua saling melengkapi dan belajar banyak dari pengalaman satu sama lain.
+
+Saat senja mulai menyelimuti hutan, mereka duduk di bawah pohon yang rindang, menikmati keindahan alam. Si Kancil merasa sangat bersyukur memiliki teman seperti Kura-kura. Ia menyadari bahwa petualangan akan lebih berarti jika dibagikan dengan seseorang. Dari hari itu, mereka berdua berkomitmen untuk menjalani setiap petualangan bersama.
